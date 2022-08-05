@@ -4,7 +4,7 @@
 * Facebook:Fikri Syahputra Sinaga
 * Blogspot: Blogspot
 * Github: Syafii-XD
-
+* kunci : widiyasayang
 
 
 
